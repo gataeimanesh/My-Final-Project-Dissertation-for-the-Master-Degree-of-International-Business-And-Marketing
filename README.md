@@ -1,4 +1,5 @@
-Final Yea Research Project for achivement of 	Master’s Degree (MA) International Business & Marketing (Merit), International Business & Marketing Dissertation (Distinction, marked 71/100) 
+Final Yea Research Project for achievement of  my  Master’s Degree (MA) International Business & Marketing with grade (Merit)
+Title of International Business & Marketing Dissertation (Distinction, marked 71/100) :
 
 Assessment of Brand Equity for Internet Retailers  
 
